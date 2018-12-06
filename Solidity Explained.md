@@ -4,7 +4,7 @@
 
 Hossein Namazian
 
-www.linkdein.com/in/hossein-namazian-a22a59135
+www.linkedin.com/in/hossein-namazian-a22a59135
 
 ## What's contract and Gas
 
